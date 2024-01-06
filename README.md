@@ -1,1 +1,1 @@
-# smarti
+# Finsaga x Smarti
